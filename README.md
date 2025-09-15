@@ -8,4 +8,6 @@ my current fixations are mainly roblox related! i currently like pressure, forsa
 
 **minors please dni**, i'm usually on the 18+ server for a reason. i don't give much of a fuck about discourse anymore but check out [hazardqueer](https://hazardqueer.carrd.co/) to get my stances on things. if you're not bothered to read then **proshippers and enti endos go away**. i hide liberally.
 
-![](eevees.gif)</div>
+![](eevees.gif)
+
+![](https://komarev.com/ghpvc/?username=your-github-username)</div>
