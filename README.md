@@ -1,6 +1,6 @@
-### <div align="center"> butch - any pronouns - 22 - plural fagdyke </div>
+### <div align="center"> butch - any pronouns - 22 - plural objectum fagdyke </div>
 
-<div align="center"> hi this is my funny poneytown account. i tend to just chill and ponywatch on here, if i ignore you it's not personal - i'm either shy or offtab! i'm usually playing with partners or friends. some fictives in my system might come around and chill as well.
+<div align="center"> hi this is my funny poneytown account. i tend to just chill and ponywatch on here, if i don't respond it's not personal - i'm either shy or offtab! i'm usually playing with partners or friends. some fictives in my system might come around and chill as well.
 
 ![](catslot.gif) ![](lessalute.png) ![](mayo.gif) ![](sebpet.gif) ![](shockhazard.png) ![](transnerds.png) 
 
