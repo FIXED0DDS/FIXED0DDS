@@ -1,12 +1,12 @@
 ### <div align="center"> butch - any pronouns - 22 - plural objectum fagdyke </div>
 
-<div align="center"> hi this is my funny poneytown account. i tend to just chill and ponywatch on here, if i don't respond it's not personal - i'm either shy or offtab! i'm usually playing with partners or friends. some fictives in my system might come around and chill as well.
+<div align="center"> hi this is my funny poneytown account. i tend to just chill and ponywatch on here, if i don't respond it's not personal - i'm either shy or offtab! i'm usually playing with partners or friends and some members of my system might come around and chill as well.
 
-![](catslot.gif) ![](lessalute.png) ![](mayo.gif) ![](sebpet.gif) ![](shockhazard.png) ![](transnerds.png) 
+![](sp2.png) ![](lessalute.png) ![](mayo.gif) ![](sebpet.gif) ![](shockhazard.png) ![](transnerds.png) 
 
-my current fixations are mainly roblox related! i currently like pressure, forsaken, sewh, general old roblox (whether its the game itself or old myths/lore) and more. i'm also very autistic about technology as a whole lmao
+local grown ass roblox player, two of my main special interests rn are pressure and forsaken! i also like playing sewh and learning about myths and old roblox. obligatory fuck david baszucki and free schlep. i also love technology and physical media as a whole!!
 
-**minors please dni**, i'm usually on the 18+ server for a reason. i don't give much of a fuck about discourse anymore but check out [hazardqueer](https://hazardqueer.carrd.co/) to get my stances on things. if you're not bothered to read then **proshippers and enti endos go away**. i hide liberally.
+**minors please dni**, i'm usually on the 18+ server for a reason. i don't give much of a fuck about discourse anymore but check out [hazardqueer](https://hazardqueer.carrd.co/) to get my stances on things. if you're not bothered to read then **proshippers and syscoursers go away**. the hide button is my beautiful wife and i use her liberally and nastystyle
 
 ![](eevees.gif)
 
