@@ -20,7 +20,12 @@
 
 <br>![stoney pony stamp](sp2.png) ![man saluting lesbian flag stamp](lessalute.png) ![papas pizzeria mayo burger stamp](mayo.gif) ![sebastian petting seabunny stamp](sebpet.gif) ![go in the dark meme stamp](inthedark.gif) ![trans nerds run the web stamp](transnerds.png) 
 
-i love contradictory and good faith identities, objectums, endo/non traumagenic systems, and people who self diagnose with proper research behind them. idc about discourse much anymore but if you're self proclaimed "problematic" get away from me you're probably annoying as hell. also if you get off to incest/pedophilia/bestiality (fictional OR irl) you're a fucking weirdo stay away from me too
+i love: 
+<p>contradictory and good faith identities</p>
+<p><objectums</p>
+<p>endo/non traumagenic systems</p>
+<p>and people who self diagnose with proper research behind them </p>
+<p>idc about discourse much anymore but if you're self proclaimed "problematic" get away from me you're probably annoying as hell. also if you get off to incest/pedophilia/bestiality (fictional OR irl) you're a fucking weirdo stay away from me too</p>
 
 ![](eevees.gif)
 
