@@ -12,7 +12,7 @@
 
 ###
 
-<p align="center">lesboy: a lesbian with ties to the male identity, or a male who has a tie to the lesbian identity.<br>the term lesboy may be new but male and masc lesbians have been in the lesbian community for all of documented queer history.<br>be kind to your fellow queer siblings. exclusionism does nothing but harm all of us.</p>
+<p align="center"><b>lesboy: a lesbian with ties to the male identity, or a male who has a tie to the lesbian identity.<br>the term lesboy may be new but male and masc lesbians have been in the lesbian community for all of documented queer history. be kind to your fellow queer siblings, exclusionism does nothing but harm all of us.</b></p>
 
 ###
 
@@ -20,9 +20,7 @@
 
 <br>![stoney pony stamp](sp2.png) ![man saluting lesbian flag stamp](lessalute.png) ![papas pizzeria mayo burger stamp](mayo.gif) ![sebastian petting seabunny stamp](sebpet.gif) ![go in the dark meme stamp](inthedark.gif) ![trans nerds run the web stamp](transnerds.png) 
 
-local grown ass roblox player, it's my current main special interest at the moment! i'm currently mainly focused on presure and old roblox myths/args. obligatory fuck david baszucki and free schlep. i also love technology, the internet, and physical media as a whole!!
-
-**minors please dni**, i'm usually on the 18+ server for a reason. i don't give much of a fuck about discourse anymore but check out [hazardqueer](https://hazardqueer.carrd.co/) to get my stances on things. if you're not bothered to read then **i love contradictory and good faith identities, objectums, and endo/non traumagenic systems. if you glorify incest/abuse/lolishota/etc go away.** the block button is my beautiful wife and i use her liberally and nastystyle.
+i love contradictory and good faith identities, objectums, endo/non traumagenic systems, and people who self diagnose with proper research behind them. idc about discourse much anymore but if you're self proclaimed "problematic" get away from me you're probably annoying as hell. also if you get off to incest/pedophilia/bestiality (fictional OR irl) you're a fucking weirdo stay away from me too
 
 ![](eevees.gif)
 
