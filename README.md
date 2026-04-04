@@ -24,8 +24,14 @@ i love:
 <p>contradictory and good faith identities</p>
 <p><objectums</p>
 <p>endo/non traumagenic systems</p>
-<p>and people who self diagnose with proper research behind them </p>
-<p>idc about discourse much anymore but if you're self proclaimed "problematic" get away from me you're probably annoying as hell. also if you get off to incest/pedophilia/bestiality (fictional OR irl) you're a fucking weirdo stay away from me too</p>
+<p>and people who self diagnose with proper research behind them
+
+![](downloadingvirus.gif)
+
+idc about discourse much anymore but if you're self proclaimed "problematic" get away from me you're probably annoying as hell (im looking DIRECTLY at you tcoaal fans). also if you get off to incest/pedophilia/bestiality (fictional OR irl) you're a fucking weirdo stay away from me too
+
+<p>i selfship if you care about that. idgaf about sharing/nonsharing discourse but here are my f/os if you wanna know for whatever reason:
+sebastian solace & painter (pressure) / two time & chance (forsaken, no i do not support soul)
 
 ![](eevees.gif)
 
