@@ -2,7 +2,7 @@
 
 ### butch - any pronouns - 22 - plural fagdyke
 
-![lesboy](lesboytiny.png) ![butch](butchtiny.png) ![termcollector](termctiny.png) ![recipromantic](reciprotiny.png) ![ambiamarous](ambitiny.png) ![objectum](objectumtiny.png)
+![lesboy](lesboytiny.png) ![butch](butchtiny.png) ![termcollector](termctiny.png) ![ambiamarous](ambitiny.png) ![objectum](objectumtiny.png)
 
 ###
 
@@ -16,22 +16,12 @@
 
 ###
 
-<div align="center"> hi this is my funny poneytown account. i'm offtab 99% of the time, if i don't respond to you it's nothing personal!
+![stoney pony stamp](sp2.png) ![man saluting lesbian flag stamp](lessalute.png) ![papas pizzeria mayo burger stamp](mayo.gif) ![sebastian petting seabunny stamp](sebpet.gif) ![go in the dark meme stamp](inthedark.gif) ![trans nerds run the web stamp](transnerds.png) 
 
-<br>![stoney pony stamp](sp2.png) ![man saluting lesbian flag stamp](lessalute.png) ![papas pizzeria mayo burger stamp](mayo.gif) ![sebastian petting seabunny stamp](sebpet.gif) ![go in the dark meme stamp](inthedark.gif) ![trans nerds run the web stamp](transnerds.png) 
-
-i love: 
-<p>contradictory and good faith identities</p>
-<p><objectums</p>
-<p>endo/non traumagenic systems</p>
-<p>and people who self diagnose with proper research behind them
-
-![](downloadingvirus.gif)
-
-idc about discourse much anymore but if you're self proclaimed "problematic" get away from me you're probably annoying as hell (im looking DIRECTLY at you tcoaal fans). also if you get off to incest/pedophilia/bestiality (fictional OR irl) you're a fucking weirdo stay away from me too
+<div align="center"> <p>hi this is my funny poneytown account. i'm offtab 99% of the time, if i don't respond to you it's nothing personal!</p>
 
 <p>i selfship if you care about that. idgaf about sharing/nonsharing discourse but here are my f/os if you wanna know for whatever reason:
-sebastian solace & painter (pressure) / two time & chance (forsaken, no i do not support soul)
+sebastian solace & painter (pressure) / two time, chance, 1x (forsaken, fuck soul btw)
 
 ![](eevees.gif)
 
