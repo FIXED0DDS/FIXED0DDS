@@ -1,10 +1,12 @@
 <div align="center">
+  <a href="https://lgbtqia.wiki/wiki/Lesboy">
   <img height="200" src="https://64.media.tumblr.com/08361e61720ed10ca86e941b0ced183f/6e2864f90c68578c-51/s500x750/8977268a5d4345707688949757e360ef8218fee3.png"  />
+    </a>
 </div>
 
 ###
 
-<p align="center"><b>lesboy: a lesbian with ties to the male identity, or a male who has a tie to the lesbian identity.<br>the term lesboy may be new but male and masc lesbians have been in the lesbian community for all of documented queer history. be kind to your fellow queer siblings, exclusionism does nothing but harm all of us.</b></p>
+<p align="center"><b><i>lesboy: an identity for an individual who in some way identifies as a boy/man that is gay/queer for women.</i><br>the term lesboy may be new but male and masc lesbians have been in the lesbian community for all of documented queer history. be kind to your fellow queer siblings, exclusionism does nothing but harm all of us.</b></p>
 
 ###
 
